@@ -1,7 +1,5 @@
 - Yoooo, I’m @davidpetras
-- I enjoy hockey, beer, collecting sports memorabilia and gaming
-- I am looking forward to joining the VFS Team!
-- You can reach at: david.petras@adhocteam.us
+- I enjoy hockey and football, beer, collecting sports memorabilia, gaming and fantasy football (4x champ)
 - Fun fact: I am a father of twin boys (they are 5 soon to be 6)
 
 <!---
